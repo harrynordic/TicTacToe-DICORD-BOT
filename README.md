@@ -109,4 +109,4 @@ Se tiver alguma dúvida, sugestão ou quiser se conectar, sinta-se à vontade pa
 
 * **Email:** [miketsukami.shion@gmail.com](miketsukami.shion@gmail.com)
 
-* **LinkedIn:** [harrynordic](https://www.linkedin.com/in/lucasharry/)
+* **LinkedIn:** [Lucas Harry](https://www.linkedin.com/in/lucasharry/)
